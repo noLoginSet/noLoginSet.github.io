@@ -5,9 +5,12 @@ Arnold Schwarzenegger as the Terminator, a cyborg assassin sent back in time fro
 1984 to kill Sarah Connor (Linda Hamilton), whose son will one day become a savior against 
 machines in a post-apocalyptic future.
 
+
 ## Character traits of actors
 * Strong
 * Unstoppable 
 * Scary 
 
+
 > I'll be back - The Terminator
+
